@@ -12,7 +12,7 @@
 - 📫 Reach me by messaging through LinkedIn
 
 ## LinkedIn
-🖇️ !LinkedIn (https://www.linkedin.com/in/maureen-hegarty/)
+🖇️ [!LinkedIn] (https://www.linkedin.com/in/maureen-hegarty/)
 
 
 <!---
